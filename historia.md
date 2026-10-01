@@ -1,0 +1,2 @@
+# Història de l'Univers
+El Thanos ha atacat la ciutat de Nova York per aconseguir una gemma de l'infinit, i l'Iron Man està lluitant per aturar-lo. De cop, l'Spider-Man apareix per ajudar a salvar la ciutat.
